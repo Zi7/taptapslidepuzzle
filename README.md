@@ -1,5 +1,4 @@
 Tap and Slide Puzzle for Holidays
-
 Privacy Policy of Tap and Slide Puzzle for Holidays
 
 Privacy Policy
